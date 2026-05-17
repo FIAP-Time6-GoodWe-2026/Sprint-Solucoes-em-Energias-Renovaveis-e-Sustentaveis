@@ -52,4 +52,4 @@ Viabilidade de Negócio: Redução imediata de custos com multas de ultrapassage
 
 8- Link pitch:
 
-https://_____________________
+https://youtu.be/SYtq7APDu6I
